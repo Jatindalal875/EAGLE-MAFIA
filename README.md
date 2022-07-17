@@ -3,7 +3,7 @@
 
 ⭐🌟 𝐁𝐎𝐓 𝐋𝐎𝐆𝐎🌈™ 🌟⭐
 
-[![spam userbot ℓσgσ](https://telegra.ph/file/f77d8aa94e5dece033137.jpg)](https://t.me/BLACK_MAFIA_OP_BOLTE) 
+[![spam userbot ℓσgσ](https://telegra.ph/file/7dff36c98b1de31bb4ba6.jpg)](https://t.me/TBH_N3TWORK) 
 <p> 𒆜ɨʄ ʏօʊ աǟռȶ ȶօ ʝօɨռ ʊֆ ֆօ քʟɛǟֆɛ ƈʟɨƈӄ օռ ȶɦɛ ɛǟɢʟɛ քɨƈ 𒆜 </P>
  
  
@@ -13,7 +13,7 @@
 
 [.](https://heroku.com/deploy)
  + JATIN(😍‿😍) - 
-[![TEAM EAGLEMAFIA USPAMBOT](https://telegra.ph/file/7dff36c98b1de31bb4ba6.jpg)](https://t.me/TBH_N3TWORK)  
+[![TEAM EAGLEMAFIA USPAMBOT](https://telegra.ph/file/f77d8aa94e5dece033137.jpg)](https://t.me/TBH_N3TWORK)  
 
  <p> 
  ❀💋 ᑕOᑎTᗩᑕT ᑌᔕ Oᑎ TEᒪEGᖇᗩᗰ 💋❀:>>>>>>> 
