@@ -15,10 +15,7 @@
  + JATIN(😍‿😍) - 
 [![TEAM EAGLEMAFIA USPAMBOT](https://telegra.ph/file/f77d8aa94e5dece033137.jpg)](https://t.me/TBH_N3TWORK)  
 
- <p> 
  ❀💋 ᑕOᑎTᗩᑕT ᑌᔕ Oᑎ TEᒪEGᖇᗩᗰ 💋❀:>>>>>>> 
- [![Owner](https://telegra.ph/file/3af984f455d98e274ea1b.jpg)](https://t.me/hunter_is_back)╏╠══[𝍖𝍖𝍖 𝙹𝙰𝚃𝙸𝙽 𝍖𝍖𝍖]      💦 </p>
+ [![Owner](https://telegra.ph/file/3af984f455d98e274ea1b.jpg)](https://t.me/Cazadar_op)╏╠══[𝍖𝍖𝍖 𝙹𝙰𝚃𝙸𝙽 𝍖𝍖𝍖]      💦 </p>
 
 ██▓▒­░⡷⠂𝙳𝙾𝙽𝚃 𝙵𝙾𝚁𝙺 𝚆𝙸𝚃𝙷𝙾𝚄𝚃 𝙾𝚆𝙽𝙴𝚁'𝚂 𝙿𝙴𝚁𝙼𝙸𝚂𝚂𝙸𝙾𝙽⠐⢾░▒▓██
-  
-  
